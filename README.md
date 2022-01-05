@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Savannah or @saveater
+- 👀 I’m interested in video games, fashion, makeup, and most recently: coding! 
+- 🌱 I’m currently learning the very basics of coding.
+- 📫 You can reach me on here or on discord @ savlol#1815!! 
